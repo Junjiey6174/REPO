@@ -1,0 +1,1 @@
+Automatic Merge is when there is no problem/changes
